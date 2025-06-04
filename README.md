@@ -10,7 +10,7 @@
 - [Лабораторная работа 6](https://rutube.ru/video/private/391faf0717e915076df1c5a79fe188c4/?p=v74gpLaEsHx6Kis43tOMLg)
 - [Лабораторная работа 7](https://rutube.ru/video/private/c42614ec8e3e50cd74f671ec9086e7b9/?p=-q1rvQMwEGppEH1NP0YdpA)
 - [Лабораторная работа 8](https://rutube.ru/video/private/7fae09cc7a7c181b7f23f8358beeb78e/?p=NxUIGn_pxAuN5OW8pPW_zA)
-- [Лабораторная работа 9](https://rutube.ru/video/private/8fccee83ddcbfe696c80324f29f5f7d5/?p=r0YcxLodPFq-N93NTAyFdQ)
+- [Лабораторная работа 9](https://rutube.ru/video/private/291651ba8ceb72c19e96645ced774f6e/?p=4wEWJrZ_Nus0-6gh_IkYtQ)
 
 
 
